@@ -1,0 +1,1 @@
+# shotaro-suzuki.github.io
